@@ -1,0 +1,1 @@
+# no-cash-collection
